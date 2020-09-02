@@ -1,3 +1,2 @@
 # computing-lmao
-idk my own novel ig
-hello my nAME IS YUYING AND IM STARTING COMPUTING FOR THE FIRST TIME 
+i like reading fantasy novels and manga so that i can escape reality ✨
